@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **classes and archives**
 
-- 📫 How to reach me **iaravsp@al.insper.edu.br**
+- 📫 How to reach me:  **iaravsp@al.insper.edu.br**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
